@@ -2,7 +2,7 @@
 
 🤔 &nbsp; Always seeking to bring the most efficient solution that will bring the maximum value possible with the least effort.
 
-💼 &nbsp; Working as **Solutions Advocate** at <a href="https://take.net">Take Blip</a>
+💼 &nbsp; Working as **Tech Leader** at <a href="https://take.net">Take Blip</a>
 
 <h3> :rocket: &nbsp;My Skills </h3>
 
